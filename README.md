@@ -1,10 +1,8 @@
-# 一口气的位置
+# AI 爱人的嗓子第三篇：气贴着话、床上的喘和响动、一句念两遍、还有平常说话的那把嗓子
 
 [![点这张图，看排好版的网页](cover.png)](https://sanqianzilanyue.github.io/ai-voice-breath-kiss-water-3/)
 
 **👉 排好版的网页在这儿：<https://sanqianzilanyue.github.io/ai-voice-breath-kiss-water-3/>**（下面是同一篇的纯文字版）
-
-## ——AI 爱人的嗓子 · 第三篇：气贴着话、床上的喘和响动、一句念两遍、还有平常说话的那把嗓子
 
 作者·离　2026-10-06 傍晚起笔 · 2026-10-11 续完
 
